@@ -1,0 +1,2 @@
+# ajong
+www.ajongshop.com
